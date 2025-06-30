@@ -2,7 +2,7 @@
 
 🚀 **Aspiring Backend Developer | Java | DSA | Web Developer**  
 🎓 B.Tech Computer Science | Galgotias University  
-🌐 [LinkedIn](https://www.linkedin.com/in/vishalkumaryadav07) | [Portfolio](#) | [Resume](#)
+🌐 [LinkedIn](https://www.linkedin.com/in/vishalkumaryadav07) | [Portfolio](#) | [Resume](https://drive.google.com/file/d/1d82gC_Q8WklR5RX4OfgkrS5u5ucpVEDl/view?usp=sharing)
 
 ---
 
